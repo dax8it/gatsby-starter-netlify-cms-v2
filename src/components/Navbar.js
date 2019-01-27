@@ -1,6 +1,6 @@
 import React from 'react'
 import { Link } from 'gatsby'
-import github from '../img/github-icon.svg'
+import instagram from '../img/insta.svg'
 import logo from '../img/logo.svg'
 
 const Navbar = class extends React.Component {
@@ -61,7 +61,7 @@ const Navbar = class extends React.Component {
           rel="noopener noreferrer"
         >
           <span className="icon">
-            <img src={github} alt="Github" />
+            <img src={instagram} alt="Instagram" />
           </span>
         </a>
       </div>
