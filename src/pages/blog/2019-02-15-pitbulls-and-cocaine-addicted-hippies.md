@@ -4,7 +4,7 @@ title: 'Vagabond Ventures Part I: Pitbulls and Cocaine Addicted Hippies '
 date: 2019-02-16T00:46:22.774Z
 description: 'And How We Escaped '
 tags:
-  - life
+  - Vagabond Ventures
 ---
 Gather round boys and girls, it's story time. The misguided adventures of your favorite starving writer continue. The other experiences that I have been writing about on here are all from the past, but today I'm writing this from a Barnes and Nobles about 2,000 miles away from the place I called home.. until three weeks ago. Following the typical pattern that my life takes, I ended up in a situation that I just feel obligated to share with someone just so I can confirm that all of this is real and I am not dreaming it all up. I embarked on this journey with my girlfriend totally unprepared because the honest truth of the matter is, I feel that you can never truly be prepared for anything and I was not going to let the time go by talking about something that "I could have done." Sometimes you just have to grab the bull by the horns and just fucking follow your heart. You are only young one time so you might as well take risks while you still can and take a little something away from all of these experiences. 
 
