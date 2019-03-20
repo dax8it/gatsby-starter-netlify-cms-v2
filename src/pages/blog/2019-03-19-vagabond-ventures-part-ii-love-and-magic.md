@@ -22,7 +22,7 @@ Let's start with this record breaking snow storm that hit the Eugene area and pu
 
 If I crashed this car, I was royally fucked
 
-The idea of 8 hours of monotonous labor isn't exactly what helps me get out of bed at 5:30 am
+The idea of 8 hours of standing around in the same spot doing the same monotonous manual labor isn’t exactly what helps me get out of bed in the morning.
 
 The hours that I had already lost set us a little short of rent for a new spot 
 
