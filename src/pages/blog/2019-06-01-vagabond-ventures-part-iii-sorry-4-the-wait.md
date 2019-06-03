@@ -8,7 +8,7 @@ tags:
   - Life
   - Experience
 ---
-As I navigate through the twists and turns of early adulthood, I learn to treat life with the same respect and admiration one would have towards a beautiful, yet feral animal. I have seen everything from the insides of beautifully constructed five-star hotels around the world to the insides decaying jail cells with blood-stained floors. And so kiddies, the story of the vagabond artist continues and memories continue to be made. I know where I have been, I love where I'm at, and I can only sit back and enjoy the ride to where I am headed.
+As I navigate through the twists and turns of early adulthood, I learn to treat life with the same respect and admiration one would have towards a beautiful, yet feral animal. I have seen everything from the insides of beautifully constructed five-star hotels around the world to the insides of decaying jail cells with blood-stained floors. And so kiddies, the story of the vagabond artist continues and memories continue to be made. I know where I have been, I love where I'm at, and I can only sit back and enjoy the ride to where I am headed.
 
 ![](/img/img_7977.jpeg)
 
