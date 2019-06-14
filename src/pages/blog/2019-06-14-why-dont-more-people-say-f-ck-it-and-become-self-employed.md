@@ -8,13 +8,13 @@ tags:
 ---
 It is the dream of every single artist, business person, and business owner to become 100% self-reliable and self-employed. Have you ever noticed the self-discouraging attitude that some people pick up when asked why don’t they wholeheartedly pursue their passions and live the life they want to live?
 
-_\*little disclaimer\* _
+\~little disclaimer\~
 
-_This entire post is simply just my opinion, and my thoughts on entrepreneurship at 3 am after working almost 24 hours straight. There is zero affiliate marketing; I’m not selling a course, I do not care about and do not care to learn anything having to do with E-Commerce. _
+This entire post is simply just my opinion, and my thoughts on entrepreneurship at 3 am after working almost 24 hours straight. There is zero affiliate marketing; I’m not selling a course, I do not care about and do not care to learn anything having to do with E-Commerce. 
 
 Ok with that off my chest, I believe there are a few reasons why such skewed attitudes on self-employment and location independence exist. 
 
-# **Fear**
+# **\*\*Fear\*\***
 
 Fear...the most obvious reason. People are scared to fail. People view “failure” as doomsday, and just the fear of this socio-economic suicide prevents people from even trying to pursue something different. Sometimes in this game, you have to invest in yourself, and people get uncomfortable when it’s time to do that. You have to look at it like this when making decisions like that, “if I’m afraid to put money into my craft..why would someone else put even more money into it??” 
 
