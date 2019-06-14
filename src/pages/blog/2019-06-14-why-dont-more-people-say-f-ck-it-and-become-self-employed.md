@@ -2,7 +2,7 @@
 templateKey: blog-post
 title: Why Don't More People Say F*ck it and Become Self-Employed
 date: 2019-06-14T16:33:57.554Z
-description: 'And Why You Should '
+description: And What Does it Actually Take?
 tags:
   - Article Blog Content Travel
 ---
