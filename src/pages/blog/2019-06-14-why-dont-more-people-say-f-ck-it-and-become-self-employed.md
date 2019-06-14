@@ -14,7 +14,7 @@ This entire post is simply just my opinion, and my thoughts on entrepreneurship 
 
 Ok with that off my chest, I believe there are a few reasons why such skewed attitudes on self-employment and location independence exist. 
 
-# **Fear**
+# **\*\*Fear\*\***
 
 Fear...the most obvious reason. People are scared to fail. People view “failure” as doomsday, and just the fear of this socio-economic suicide prevents people from even trying to pursue something different. Sometimes in this game, you have to invest in yourself, and people get uncomfortable when it’s time to do that. You have to look at it like this when making decisions like that, “if I’m afraid to put money into my craft..why would someone else put even more money into it??” 
 
